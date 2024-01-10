@@ -5,7 +5,7 @@ Hey, fellow code wanderers! I'm Shubham Deep Gautam, and I'm on a mission to con
 
 ## 🌐 Let's Connect!
 
-- 👀 I'm always up for a chat. Drop me a line at shubham.gautam@experis.com or deepshubhamg@gmail.com.
+- 👀 I'm always up for a chat. Drop me a line at shubham.gautam@experis.com or deepshubhamg@gmail.com
 - 💼 Check out my professional journey on [LinkedIn](https://www.linkedin.com/in/shubham-deep-gautam-0a721a142). Let's connect and explore the possibilities!
 
 ## ⚡ Fun Facts
